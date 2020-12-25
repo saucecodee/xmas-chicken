@@ -1,2 +1,5 @@
 # xmas-chicken
-For people that couldn't get chicken this Christmas 🐓🐔
+Enjoy Christmas chicken remotely like never before 🐓🐔.
+
+
+Fork🍴 this chicken let's feast together 😁🥂
